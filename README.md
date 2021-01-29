@@ -6,4 +6,6 @@ For 2 digit numbers 0.25 and goes on
 
 You can put 0 delay but be carfule for getting banned for spamming
 
+Your antivirus may block it, it is not a virus.
+
 Creator, yologamer21022
